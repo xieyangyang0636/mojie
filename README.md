@@ -1,2 +1,3 @@
 # mojie
-魔戒最新官网
+魔戒VPN最新官网
+https://hk.mojie.co/register?aff=qXKdsac5
